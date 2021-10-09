@@ -1,2 +1,2 @@
 # -setch3at-
-este projeto ainda está privado mais é algo comprometedor
+este projeto ainda está privado. Mais é algo comprometedor
